@@ -8,7 +8,7 @@ I will stop **updating** the repositery when I will be done with all the basic o
 
 ## Question
 If anyone has a question, feel free to contact me. <br/>
-Discord ➔ ~/sofia#6666
+Discord ➔ ~/sofia#4047
 
 ## Bye
 Hope I could help with this. <br/>
